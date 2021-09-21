@@ -1,2 +1,2 @@
-🔭 I’m currently working on Software Engineer.
+Make it simple to solve.
 
