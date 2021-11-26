@@ -1,2 +1,2 @@
-Make it simple to solve.
+Go hard or go home.
 
